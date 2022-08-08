@@ -1,4 +1,4 @@
-👋 Hello there, I’m QistinAshriee
+👋 Hello there, I’m Qistina Ashriee
 
 I’m currently working as Software Engineer and also focusing to improve my knowledge and skills in Web Development. 
 
